@@ -1,1 +1,1 @@
-# LTD_NewEditionDll
+[Warcraft 3]
